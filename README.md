@@ -20,7 +20,7 @@ For modern humans, though, evolutionary success and reproduction are separated f
 
 In fact, nutrient dense foods are the single biggest contributor to obesity, metabolic disease, unhealthy microbiomes, and generaly human unhappiness in modern America, period.
 
-There are various elites that know this in one way or another - hippies, vegans, paleo fanatics, keto junkies, and the like.
+There are various elites that know this in one way or another - hippies, hipsters, yuppies, yupsters, vegans, paleo fanatics, keto junkies, and the like.
 This book offers a set of instructions that anyone, young or old, fat or thin, rich or poor, can follow to lose weight and become happier and healthier.
 
 Chapters:
